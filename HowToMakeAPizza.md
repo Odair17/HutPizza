@@ -21,3 +21,19 @@ Dejamos que se cocine a fuego lento durante unos 30 minutos. A continuación, co
 Es una manera de conseguir la excelencia en la cocina, aunque podemos dejar los tropezones para darle un aspecto mucho más natural, existe la posibilidad de triturar la salsa.
 Dependiendo de cómo de fina nos guste, incluso podemos pasarla por un colador, será una manera de evitar los tropezones o las semillas de tomate.
 Podemos guardar la salsa en el congelador en cubitos de hielo para tenerla siempre preparada. Es una forma de ahorrar y de aprovechar al máximo una elaboración de lujo fácil de preparar como la esta sencilla y deliciosa salsa para pizza.
+# Como hacer una pizza 
+
+## Hacer la Masa
+- Agregar Harina 
+- Agregar levadura
+- Agregar Huevo
+- Agregar Agua
+- Amasar 
+- Dejar reposar 
+- Dar forma
+
+
+
+
+
+
