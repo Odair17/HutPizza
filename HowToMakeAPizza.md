@@ -10,6 +10,12 @@
 - Dar forma
 
 
+# Proceso para hornear pizza
+
+- A temperatura alta colocar por 15min
+- Debemos cocinar a 250 grados c
+
+
 
 
 
