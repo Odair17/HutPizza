@@ -32,6 +32,12 @@ Podemos guardar la salsa en el congelador en cubitos de hielo para tenerla siemp
 - Dejar reposar 
 - Dar forma
 
+## ingredientes extras
+- cebolla 
+- chile morron
+- salsa roja
+- queso 
+
 
 
 
