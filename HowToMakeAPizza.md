@@ -39,6 +39,12 @@ Podemos guardar la salsa en el congelador en cubitos de hielo para tenerla siemp
 - queso 
 
 
+# Proceso para hornear pizza
+
+- A temperatura alta colocar por 15min
+- Debemos cocinar a 250 grados c
+
+
 
 
 
